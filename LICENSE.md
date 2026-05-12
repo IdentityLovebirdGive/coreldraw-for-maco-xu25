@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CorelDRAW for macOS extension with smart Extension for CorelDRAW for macOS - custom brushes and gradient maps. Featuring custom brushes and gradient maps, it's
 
 
 
